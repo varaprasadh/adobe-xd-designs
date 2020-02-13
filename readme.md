@@ -7,6 +7,11 @@
 ***i am thankful to planet earth and greatuful to be a human***
 ---
 
+![](./bend_reality/bend_reality_desktop.jpg) 
+
+![](./reshape_reality/reshape_reality_desktop.jpg)
+
+
 ----
 
 
